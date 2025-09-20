@@ -1,4 +1,4 @@
-# KhushLabGao
+# KhushalGao
 productivity tools
 
 There are several types of software and software companies earning huge amounts of money globally. Here are some of the most notable examples:
